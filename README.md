@@ -1,0 +1,1 @@
+[Assignment link](https://columbiaviz.github.io/2024s_w4995/a0.html)
